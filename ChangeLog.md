@@ -3,3 +3,13 @@
 02/09/2026 Submitted Homework 3
 02/16/2026 Submitted Homework 4
 02/23/2026 Submitted Homework 5
+03/09/2026 Submitted Homework 6
+
+
+
+
+
+
+
+
+
